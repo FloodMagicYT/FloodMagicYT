@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @FloodMagicYT
+- 👀 I’m interested in gaming and playing with my friends
+- 🌱 I’m currently learning how to code in C++
+- 💞️ I’m looking to collaborate on random stuff
+- 📫 How to reach me, nutshellcontent1@gmail.com
+- 😄 Pronouns: He, Him
+- ⚡ Fun fact: I like to make Youtube videos sometimes
